@@ -1,0 +1,1 @@
+# projetInfo_2018_Schleich_Stretti
